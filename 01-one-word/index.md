@@ -2,7 +2,7 @@ One word essay
 
 - [Rough draft](#rough-draft)
 - [First draft](#first-draft)
-- [Revision & edit](#revision-&-edit)
+- [Revision & edit](#revision-and-edit)
 - [Final](final.md)
 
 # Rough Draft
@@ -30,7 +30,7 @@ Therefore, my question is - what is their function? Do they only exist to waste 
 
 I might never be able to solve this mystery, I might never find out why do silent letters exist, but I know one thing for sure, and that is - silent letters will always annoy the living hell out of me and the so far unrevealed reasoning behind the spelling of the word ‘queue’ will haunt me in my mind for the rest of my life.
 
-# Revision & edit
+# Revision and edit
 
   - using the Hemingway app editor
 
