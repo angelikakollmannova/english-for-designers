@@ -2,7 +2,7 @@ One word essay
 
 - [Rough draft](#rough-draft)
 - [First draft](#first-draft)
-- [Revision & edit](#revision-and-edit)
+- [Revision and edit](#revision-and-edit)
 - [Final](final.md)
 
 # Rough Draft
