@@ -5,7 +5,7 @@
 
 # About
 
-![myself](img/girl-looking-at-a-camera)
+![myself](img/girl-looking-camera.png)
 
 *Hi!*
 *I am Angelika - a 22 year old artist from Slovakia. But who am I beyond that? Honestly, I don’t know. Not because I don’t have any hobbies or passions, but because there’s  so many of them. I am way too many things to pick just one and completely define myself by it.*
