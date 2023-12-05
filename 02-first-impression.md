@@ -1,13 +1,10 @@
-![ALYA_1 01_11_15_11 Still063](https://github.com/angelikakollmannova/english-for-designers/assets/148856114/1f8e3d60-a25c-49c3-8399-f0b246749dba)# First Impression
+# First Impression
 
 - [About](#about)
 - [Projects](#projects)
 
 
 # About
-
-
-
 
 *Hi!*
 *I am Angelika - a 22 year old artist from Slovakia. But who am I beyond that? Honestly, I don’t know. Not because I don’t have any hobbies or passions, but because there’s  so many of them. I am way too many things to pick just one and completely define myself by it.*
