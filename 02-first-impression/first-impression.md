@@ -3,7 +3,6 @@
 - [About](#about)
 - [Projects](#projects)
 
-
 # About
 
 *Hi!*
