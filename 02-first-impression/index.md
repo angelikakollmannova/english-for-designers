@@ -14,7 +14,7 @@ I am a graphic designer, but also a singer, songwriter, lyricist and a creative 
 
 But I also love silence. I may not seem like I’m the best at it, but I love to just sit and listen. Observe and then analyze. Dig deep into the deepest depths of a matter. Contemplate on the most entangled thoughts that’ve ever crossed my mind. I am fascinated by everything that transcends us. Psychology, astrology, numerology, all the spiritual beliefs and theories. I love to pick it all apart in my own little 3D reality. 
 
-So who am I beyond a 22 year old artist? Probably ‘a walking contrast’🌗
+So who am I beyond a Slovak artist? I guess you could say ‘a walking contrast’🌗
 
 
 # Projects
