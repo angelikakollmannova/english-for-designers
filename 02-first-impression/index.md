@@ -29,10 +29,12 @@ United Islands of Prague is a music festival which takes place on Prague's river
 
 ![bohema](img/my_fatherland.jpg)
 
-I love merging graphic design with music, and this passion of mine gave birth to a purely graphic print I designed for a Czech shop Bohéma. It is a poster inspired by the set of six symphonic compositions by Bedřich Smetana called My Fatherland (Má Vlast). Each of these compositions is symbolically and also numerically represented in the design. The poster also contains a Spotify scan code, hidden in a blue circle at the top of the poster.
+I love merging graphic design with music, and this passion of mine gave birth to a purely graphic print I designed for a Czech shop Bohéma in the spring of 2022. It is a poster inspired by the set of six symphonic compositions by Bedřich Smetana called My Fatherland (Má Vlast). Each of these compositions is symbolically and also numerically represented in the design. The poster also contains a Spotify scan code, hidden in a blue circle at the top of the poster.
 
 ## [ALYA - MESTO](https://www.youtube.com/watch?v=Lm1JRj3MLOo)
 
 ![alya](img/mesto.jpg)
+
+As I already mentioned, another one (and probably the biggest one) of my passions is music. I have sung and written songs and lyrics ever since I can remember, and I feel very blessed and grateful to do so. It is the best tool for self-expression and healing that I have at my disposal. Since February 2023, I started releasing my music publicly below the music and production label ILLUMINATE and it so far, it has been an absolute dream come true. MESTO (The City) was the third song I've released with my first ever featuring by a Slovak rapper. The song's lyrics is about having that special someone by your side even when the lights turn off and the city quiets down. The music video is based on atmospheric and abstract shots which support the song's mood and idea, rather than following a specific storyline.
 
 
