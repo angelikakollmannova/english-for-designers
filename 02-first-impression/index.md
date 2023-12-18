@@ -23,6 +23,8 @@ So who am I beyond a Slovak artist? I guess you could say â€˜a walking contrastâ
 
 ![united](img/united_islands.png)
 
+United Islands of Prague is a music festival which takes place on Prague's river islands every spring. The festival's ideology is based on values such as diversity, freedom and inclusion. Therefore, when ddesigning its visual identity, I opted for fluid, dynamic and organic shapes and bright colors. The logo itself is, however, very simple and clean, only based on a black and white typography, representing fusion between the structuredness of the city and the colorfulness and individality of its inhabitants.
+
 ## My Fatherland
 
 ![bohema](img/my_fatherland.jpg)
