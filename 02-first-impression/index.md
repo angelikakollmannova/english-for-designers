@@ -23,11 +23,13 @@ So who am I beyond a Slovak artist? I guess you could say ‘a walking contrast�
 
 ![united](img/united_islands.png)
 
-United Islands of Prague is a music festival which takes place on Prague's river islands every spring. The festival's ideology is based on values such as diversity, freedom and inclusion. Therefore, when ddesigning its visual identity, I opted for fluid, dynamic and organic shapes and bright colors. The logo itself is, however, very simple and clean, only based on a black and white typography, representing fusion between the structuredness of the city and the colorfulness and individality of its inhabitants.
+United Islands of Prague is a music festival which takes place on Prague's river islands every spring. The festival's ideology is based on values such as diversity, freedom and inclusion. Therefore, when designing its visual identity in December 2022, I opted for fluid, dynamic and organic shapes and bright colors. The logo itself is, however, very simple and clean, only based on a black and white typography, representing fusion between the structuredness of the city and the colorfulness and individality of its inhabitants.
 
 ## My Fatherland
 
 ![bohema](img/my_fatherland.jpg)
+
+I love merging graphic design with music, and this passion of mine gave birth to a purely graphic print I designed for a Czech shop Bohéma. It is a poster inspired by the set of six symphonic compositions by Bedřich Smetana called My Fatherland (Má Vlast). Each of these compositions is symbolically and also numerically represented in the design. The poster also contains a Spotify scan code, hidden in a blue circle at the top of the poster.
 
 ## [ALYA - MESTO](https://www.youtube.com/watch?v=Lm1JRj3MLOo)
 
