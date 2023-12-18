@@ -21,6 +21,14 @@ So who am I beyond a Slovak artist? I guess you could say â€˜a walking contrastâ
 
 ## United Islands of Prague
 
+![united](img/united_islands.png)
+
 ## My Fatherland
 
+![bohema](img/my_fatherland.jpg)
+
 ## [ALYA - MESTO](https://www.youtube.com/watch?v=Lm1JRj3MLOo)
+
+![alya](img/mesto.jpg)
+
+
