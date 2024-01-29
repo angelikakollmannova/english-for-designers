@@ -10,7 +10,7 @@
 
 ![alya](images/mesto.jpg)
 
-Since February 2023, I started releasing my music publicly under the music and production label ILLUMINATE and it so far, it has been an absolute dream come true. MESTO (The City) was the third song I've released with my first ever featuring by a Slovak rapper. The song's lyrics is about having that special someone by your side even when the lights turn off and the city quiets down. The music video is based on atmospheric and abstract shots which support the song's mood and idea, rather than following a specific storyline.
+Since February 2023, I started releasing my music publicly under the music and production label ILLUMINATE and so far, it has been an absolute dream come true. MESTO (The City) was the third song I've released with my first ever featuring by a Slovak rapper. The song's lyrics is about having that special someone by your side even when the lights turn off and the city quiets down. The music video is based on atmospheric and abstract shots which support the song's mood and idea, rather than following a specific storyline.
 
 ## [ALYA - NECHCEM BYŤ SAMA](https://www.youtube.com/watch?v=u2kaFBS9OBA)
 
