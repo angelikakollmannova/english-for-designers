@@ -7,7 +7,7 @@
 
 ### Want to learn more about my work?
 
-### Want to learn more about [my writing](01-one-word/index.md))?
+### Want to learn more about [my writing](01-one-word/index.md)?
 
 ![myself](images/girl-with-leaves.jpg)
 
