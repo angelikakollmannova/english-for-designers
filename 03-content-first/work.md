@@ -4,9 +4,6 @@
 
 # My work
 
-- ### [My work as ALYA](my-work-as-alya)
-- ### [My work as Angelika Kollmannová](my-work-as-angelika-kollmannova)
-
 ### My work as ALYA
 
 ## [ALYA - MESTO](https://www.youtube.com/watch?v=Lm1JRj3MLOo)
