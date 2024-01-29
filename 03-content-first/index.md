@@ -1,7 +1,7 @@
 # Content First
 
-***Hi!***
-***I'm Angelika and I love to express myself and my ideas through art.***
+## Hi!
+## I'm Angelika and I love to express myself and my ideas through art.
 
 #### Want to learn more [about me](about.md)?
 
