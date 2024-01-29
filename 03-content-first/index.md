@@ -10,9 +10,4 @@
 
 ![myself](images/girl-with-leaves.jpg)
 
-## About 
-
-## Portfolio
-
-## First Impression
 
