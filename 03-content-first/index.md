@@ -5,9 +5,9 @@
 
 ### Want to learn more [about me](about.md)?
 
-### Want to learn more about my work?
+### Want to learn more about [my work](work.md)?
 
-### Want to learn more about [my writing](01-one-word/index.md)?
+### Want to learn more about [my writing](writing.md)?
 
 ![myself](images/girl-with-leaves.jpg)
 
