@@ -1,6 +1,6 @@
 - [Home](index.md)
 - [About me](about.md)
-- [Writing](writing/index.md)
+- [Writing](writing.md)
 
 # My work
 
