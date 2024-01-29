@@ -22,7 +22,7 @@ NECHCEM BYŤ SAMA (I Don't Want To Be Alone) is the latest song that I have rele
 
 ![alyael](images/girl-wedding-dress.jpg)
 
-Speaking of pain, filming a music video for NEBO (Heaven), my most successful song so far numbers-wise, was not heavenly at all. It was probably the shortest, yet physically the hardest music video I have ever filmed. Have you ever went on a 3 hours long, super steep hike with all the filming equipment, a wedding dress (even though you're not getting married on that hike), a full face of make up and your hair perfectly done (minus a hair tie though🥲) in a 35 degrees Celsius summer heatwave kind of weather? I have! But hey! People seem to like the song, as well as the video, so I think it is all okay. Even when me and the guy I wrote this love song about are currently practicing no contact. That's life I guess🌞
+Speaking of pain, filming a music video for NEBO (Heaven), my most successful song so far numbers-wise, was not heavenly at all. It was probably the shortest, yet physically the hardest music video I have ever filmed. Have you ever went on a 3 hours long, super steep hike with all the filming equipment, a wedding dress (even though you're not getting married on that hike), a full face of make up and your hair perfectly done (minus a hair tie though🥲) in a 35 degrees Celsius summer heatwave kind of weather? I have! But hey! People seem to like the song, as well as the video, so I think it is all okay. Even when me and the guy I wrote this love song about are currently practicing no contact. But that's life I guess🌞
 
 
 
