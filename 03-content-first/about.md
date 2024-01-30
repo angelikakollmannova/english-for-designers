@@ -23,7 +23,7 @@ I believe, I was given a voice - vocal, visual, as well as verbal, and my main j
 
 _My 5 year old self learning how to play the guitar, however, I can't play the guitar till this day, only the piano._
 
-## How I got to graphic design
+## How I got into graphic design
 
 I loved music my whole life, but as I got older I felt the urge to find another artistic medium to help me, furthermore, embody my thoughts, feelings and ideas. And so I discovered graphic design. When COVID hit Europe and it seemed almost impossible to do music beyond the four walls of my room, I started experimenting with Adobe programs and I instantly knew that graphic design would be the perfect tool to complement my musical ambtions. 
 
