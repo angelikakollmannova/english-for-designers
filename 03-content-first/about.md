@@ -27,7 +27,7 @@ _My 5 year old self learning how to play the guitar, however, I can't play the g
 
 I loved music my whole life, but as I got older I felt the urge to find another artistic medium to help me, furthermore, embody my thoughts, feelings and ideas. And so I discovered graphic design. When COVID hit Europe and it seemed almost impossible to do music beyond the four walls of my room, I started experimenting with Adobe programs and I instantly knew that graphic design would be the perfect tool to complement my musical ambtions. 
 
-Ever since, fusing graphic design with music became one of my biggest hobbies. I have always loved the idea of Gesamtkunstwerk and I feel that by developing as a graphic designer, I am slowly, but surely getting closer to it.
+Ever since, fusing graphic design with music became one of my biggest hobbies. I have always loved the idea of _Gesamtkunstwerk_ (German term for 'total work of art') and I feel that by developing as a graphic designer, I am slowly, but surely getting closer to it.
 
 ![naplavka](images/naplavka.jpg)
 
