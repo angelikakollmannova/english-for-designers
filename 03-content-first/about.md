@@ -21,7 +21,7 @@ I believe, I was given a voice - vocal, visual, as well as verbal, and my main j
 
 ## How I got to graphic design
 
-I loved music my whole life, but as I got older I felt the urge to find another artistic medium to help me, furthermore, embody my thoughts, feelings and ideas. And so I discovered graphic design. When COVID hit Europe and it seemed almost impossible to do music beyond the four walls of my room, I started experimenting with Adobe programs and I instantly knew that grafic design would be the perfect tool to complement my musical ambtions. 
+I loved music my whole life, but as I got older I felt the urge to find another artistic medium to help me, furthermore, embody my thoughts, feelings and ideas. And so I discovered graphic design. When COVID hit Europe and it seemed almost impossible to do music beyond the four walls of my room, I started experimenting with Adobe programs and I instantly knew that graphic design would be the perfect tool to complement my musical ambtions. 
 
 Ever since, fusing graphic design with music became one of my biggest hobbies. I have always loved the idea of Gesamtkunstwerk and I feel that by developing as a graphic designer, I am slowly, but surely getting closer to it.
 
