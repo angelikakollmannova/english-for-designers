@@ -5,6 +5,8 @@
 # My writing
 ### Queue - One Word Essay
 
+_by Angelika Kollmannová, November 2023_
+
 ![queue](images/queue.jpeg)
 
 English spelling and pronunciation can be quite tricky sometimes. I was born and raised in Slovakia, Slovak language is my mother tongue and my brain is probably wired a bit differently compared to a English native speaker’s brain. Over the years, I have noticed a few peculiar examples of English grammar, which I genuinely find very much inexplicable. 
