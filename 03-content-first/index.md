@@ -2,9 +2,9 @@
 
 #### Want to learn more [about me](about.md)?
 
-#### Want to learn more about [my work](work.md)?
+#### Want to explore more of [my work](work.md)?
 
-#### Want to learn more about [my writing](writing.md)?
+#### Want to read [my writing](writing.md)?
 
 ![myself](images/girl-with-leaves.jpg)
 
