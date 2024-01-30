@@ -53,5 +53,14 @@ I love merging graphic design with music, and this passion of mine gave birth to
 
 ## Fingerprint Festival
 
+![fingerprint1](images/fingerprint-festival.jpg) 
+
+_Visual identity design for the Fingerprint Festival - key visual, September, 2023._
+
+![fingerprint2](images/ff-head.jpg)
+
+_Fingerprint Festival's symbol, September 2023._
+
+Fingerprint Festival is a fictional event for which I not only created its logo, visual identity and communication, but also the concept and ideology, which the whole event is based on. The festival offers a unique space, where artists and creatives such as musicians, producers, dancers, writers and digital designers can not only enjoy and get inspired from the performances at the festival, but they may also use this time and place for networking, taking part in different workshops and classes, developing new skills or improving in their talents and artistic hobbies with the helping hand of the industry's professionals. The festival's symbol comprises of an actual fingerprint which represents a silhouette of a human head.
 
 
