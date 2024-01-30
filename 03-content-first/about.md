@@ -10,7 +10,7 @@ Just like Hannah Montana, most of the time I feel as if I'm living two lives at 
 
 ![me-behind-a-camera](images/girl-behind-camera.jpg)
 
-_Behind the scenes from filming a music video in an empty airplane for my song Mesto, May 2023._
+_Behind the scenes photo from filming a music video in an empty airplane for my song Mesto, May 2023._
 
 ## My music journey
 
