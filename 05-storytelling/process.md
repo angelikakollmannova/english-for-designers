@@ -1,4 +1,4 @@
-# My Process
+# My process
 
 ### 1. Choosing the topic
 
