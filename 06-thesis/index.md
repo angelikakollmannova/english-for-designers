@@ -6,8 +6,8 @@ by Angelika Kollmannová
 
 22 April 2024
 
-- Download [the slides](assets/surname-title-slides.pdf) 
-- Watch [the video](…)
+- Download [the slides](https://drive.google.com/drive/u/0/folders/167t-bOMI0VDBVCLa5e6nvDs-w0SoX4pG) 
+- Watch [the video](https://drive.google.com/drive/u/0/folders/1PEry63Mh9wX7BG0jZbumdi4D-9NEHK73)
 
 ### Introduction
 
