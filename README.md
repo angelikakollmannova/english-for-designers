@@ -5,4 +5,5 @@
 - [Voice, Tone, and Style](04-voice-tone-style)
 - [Storytelling](05-storytelling)
 - [Thesis](06-thesis/index.md)
+- [Year in Review](07-year-in-review)
 
